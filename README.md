@@ -6,4 +6,4 @@ My academic journey revolves around the intricate world of numbers, but my passi
 
 This portfolio is to showcase my analytical and technical skills and learn from like-minded individuals. 
 
-Feel free to connect on LinkedIn: @hiraqazi 
+Feel free to connect on LinkedIn: [@hiraqazi](https://www.linkedin.com/in/hiraqazi/) 
